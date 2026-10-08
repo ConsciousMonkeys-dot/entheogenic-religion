@@ -32,6 +32,18 @@ The plant medicine is not a shortcut around the divine. It is the doorway. The s
 
 The religion is not controlled from the top down. It is built from the ground up — one person, one garden, one community at a time. Fear only has the power you hand it. The less of your life runs through the system, the less the system matters.
 
+## 7. God as Vibration
+
+God is vibration. Vibration lives in the throat — the place where the word is spoken.
+
+The Hebrew *davar* means both "word" and "thing": speaking creates. Genesis opens with God speaking creation into being. The Gospel of John calls Christ the Word. The vibration is the bridge between the God outside and the God within.
+
+## 8. The Spoken Word as Spellcasting
+
+What you speak shapes what you become. "I am a good man" plants a different seed than "I'm not good." The word spoken outward meets the voice heard inward — and that is where the meeting happens.
+
+The vagus nerve runs from the brainstem through the throat, and speaking activates it directly. That is why humming, chanting, and singing calm the nervous system faster than thinking about calm does. The throat is the body's control panel for the inner state.
+
 ---
 
 *Draft — to be refined.*
