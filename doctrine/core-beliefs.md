@@ -44,6 +44,14 @@ What you speak shapes what you become. "I am a good man" plants a different seed
 
 The vagus nerve runs from the brainstem through the throat, and speaking activates it directly. That is why humming, chanting, and singing calm the nervous system faster than thinking about calm does. The throat is the body's control panel for the inner state.
 
+## 9. Equality
+
+Stop thinking you are better than everyone, and realize that everybody is equal. If everybody is part of God, everybody is just having their experience, and living their life.
+
+Equality is not a political slogan — it is the logical conclusion of the two truths. If everybody is part of God, then nobody is above anybody, and the ladder was never real to begin with.
+
+The "having their experience" part is the key — the person you knock down is having their own path, their own lessons, their own voice. You don't get to judge it because you can't see it.
+
 ---
 
 *Draft — to be refined.*
