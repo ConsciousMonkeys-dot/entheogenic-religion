@@ -62,6 +62,24 @@ The implication is direct: if the ban is colonial in origin, it can be repealed 
 
 ---
 
+## Section Nine — The Frankincense Precedent
+
+Frankincense is the resin of the Boswellia tree, native to the Horn of Africa and the Arabian Peninsula — the same desert landscape as the acacia. It is the most sacred substance in the Abrahamic traditions: one of the three gifts brought to the infant Jesus, burned in the Temple in Jerusalem, and still burned in churches and mosques today. The tree itself is sacred in the Islamic world — the Prophet is reported to have said its water treats eye ailments.
+
+The medical evidence is the strongest of any plant in this paper. A 2020 meta-analysis of seven randomized trials with 545 osteoarthritis patients found Boswellia significantly reduced pain, stiffness, and improved joint function. A 2024 trial showed pain scores dropping forty-five to sixty-two percent by day ninety, with improvements visible by day five. A 2025 randomized study using MRI found actual cartilage volume and thickness increased after 180 days — structural repair, not just symptom relief.
+
+The cancer evidence is early but real. A 2024 Phase Ia trial at the Medical University of South Carolina gave breast cancer patients 2400 milligrams a day before surgery — tumor proliferation dropped thirteen point eight percent in the treated group while rising fifty-four percent in controls. A 2025 review found roughly half of patients with radiation-induced brain edema benefited, and some could taper off dexamethasone.
+
+Safety is excellent across trials — mostly mild gastrointestinal upset, no serious adverse events.
+
+The mechanism is specific: boswellic acids inhibit **5-lipoxygenase**, the enzyme that drives inflammation — a documented pathway, not vague marketing.
+
+The historical arc matters too. Frankincense was medicine before it was incense. The Ebers Papyrus, around fifteen hundred BCE, prescribed it for inflammation and wounds. Dioscorides catalogued its uses in the first century. The sacred burning came later — the tree was a pharmacy before it was a temple offering.
+
+The implication is direct: the most sacred tree in the Abrahamic world is also one of the most medically validated plants on Earth. The tradition that burns it as incense already contains the evidence that it heals. The darura principle applies here as clearly as it does to cannabis — and the sacredness of the tree makes the case harder to dismiss, not easier.
+
+---
+
 ## Appendix — Additional Avenues for Investigation
 
 **The Islamic medical canon.** Al-Razi, around 925, prescribed hemp leaves for epilepsy — eight centuries before modern trials confirmed CBD's anti-seizure effect. Avicenna's Canon of Medicine, the standard textbook in Europe for six hundred years, recommended cannabis for pain and insomnia. Ibn al-Baytar described its psychoactive properties in the thirteenth century. The plant's medicinal use is documented inside the Islamic tradition itself, by its own greatest physicians.
