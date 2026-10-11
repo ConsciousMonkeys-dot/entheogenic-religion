@@ -103,6 +103,15 @@ Three times a year, Mercury appears to move backward through the sky. In the tra
 
 Note that the June window opens on a new moon (June 2–3), which the tradition reads as a double signal: inward energy and review energy arriving together. That is a month for deep inner work, not outward action.
 
+## Eclipses
+
+Eclipses sit above the monthly and yearly rhythms — rarer, heavier, treated as their own category. See [Eclipse Observances](eclipse-observances.md) for the full reading and practice.
+
+**2027 eclipses (approximate — verify before fixing):**
+
+- **May 19–20 — Lunar eclipse**, full moon in Taurus. A completion in the sign of the body and stability.
+- **June 2–3 — Solar eclipse**, new moon in Gemini. Opens on the same days as the June Mercury retrograde — the heaviest inward month of the year.
+
 ## How the Layers Stack
 
 A day is read by stacking all three layers:
@@ -113,20 +122,29 @@ A day is read by stacking all three layers:
 
 Example: a full moon on a Thursday in Sagittarius is a peak-energy day ruled by Jupiter — a day for celebration, teaching, and outward expansion. A new moon on a Saturday in Pisces is a deep-rest day ruled by Saturn — a day for silence, release, and going inward.
 
+An eclipse day stacks a fourth layer: the nodes. When the moon meets the sun's path, the ordinary reading is suspended and the eclipse reading takes over.
+
 ## The Practice
 
 - **New moon:** set the intention for the coming cycle. Begin what you want to grow.
 - **Full moon:** harvest, celebrate, release what is complete.
 - **Solstices and equinoxes:** the four major observances of the year. Community gatherings where possible.
 - **Mercury retrograde:** review and repair. No new beginnings.
+- **Eclipses:** silence before, one act, no starting or finishing, three days of quiet after. See [Eclipse Observances](eclipse-observances.md).
 - **Daily:** let the planet of the day shape the quality of the work.
+
+## Decisions Made
+
+- **Year begins at the spring equinox** (March 20). Light returns; the outward year starts. The winter solstice remains the inward year's beginning, not the year's.
+- **Tropical zodiac.** The calendar tracks the sun against the seasons, which are fixed. The sidereal zodiac drifts against those points over centuries and would loosen the anchor.
+- **Eclipses are separate observances**, not intensified moons. A swallowed sun and a swallowed moon are different events with different readings.
+- **Shared calendar for the four gates; personal reading for the daily sky.** The solstices and equinoxes are the community's spine. The moon and planets are each person's own.
 
 ## Open Questions
 
-- Should the year begin at the spring equinox, the winter solstice, or the first new moon after one of them?
-- Should the tradition use the tropical zodiac (as above) or the sidereal zodiac used in Vedic and some other traditions?
-- How should lunar eclipses and solar eclipses be marked — as intensified versions of full and new moons, or as separate observances?
-- Should the community adopt a shared calendar with fixed feast days, or should each person read their own sky?
+- Should eclipses be community gatherings or strictly personal observances? (See [Eclipse Observances](eclipse-observances.md).)
+- Should partial eclipses be marked differently from total ones?
+- How should the community handle a year with no eclipses at all — like 2027 has only one pair?
 
 ---
 
