@@ -4,6 +4,8 @@
 
 This document is the practical medicine manual of the entheogenic religion. The tradition holds that God created plants as medicine — that the same creation that gave us frankincense, myrrh, and gold also gave us clove, ginger, and turmeric. This is not alternative medicine replacing doctors. It is the daily practice of the faith: tending the body as a temple, using what the earth provides, with intention and respect.
 
+This menu tells us *what* to drink. The companion document, [The Daily Tea Liturgy](daily-tea-liturgy.md), tells us *how* to drink it — turning a remedy into a sacrament.
+
 ## Why
 
 The body is the vessel of consciousness. A clear body supports a clear mind, and a clear mind is the doorway to gnosis. The herbs in this tradition have been used for thousands of years across cultures — in the UDV, Santo Daime, Rastafari, Sufi, and Hindu traditions — not as drugs, but as sacraments and medicines. The active compounds in these plants are real, studied, and effective. This document organizes them by what they do, how to prepare them, and when to use them.
