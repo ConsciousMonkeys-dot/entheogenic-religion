@@ -4,6 +4,8 @@
 
 The herbal medicine menu tells us *what* to drink. This liturgy tells us *how* to drink it — turning a remedy into a sacrament. The body is the vessel of consciousness; a clear body supports a clear mind, and a clear mind is the doorway to gnosis. Each cup is a small act of devotion, not just a treatment.
 
+This liturgy is the companion to [The Herbal Medicine Menu](herbal-medicine-menu.md), which lists every herb, its uses, the illness categories, and the weekly routine.
+
 ## The Liturgy
 
 ### 1. Intention (before the first sip)
@@ -36,7 +38,7 @@ Then go about your day. The liturgy is complete in the time it takes to drink on
 
 ## The Weekly Rhythm
 
-Follow the weekly routine in the herbal medicine menu. The liturgy does not change day to day — only the herbs change. Monday's ginger-turmeric and Sunday's spruce needle are the same sacrament in different forms.
+Follow the weekly routine in the [herbal medicine menu](herbal-medicine-menu.md). The liturgy does not change day to day — only the herbs change. Monday's ginger-turmeric and Sunday's spruce needle are the same sacrament in different forms.
 
 ## The Seasonal Shift
 
@@ -45,5 +47,5 @@ In winter, lean toward spruce needle, elderberry, and warming roots. In summer, 
 ## Notes for the Community
 
 - This liturgy is for personal daily practice. It does not replace medical care.
-- The safety checklist in the herbal medicine menu still applies.
+- The safety checklist in the [herbal medicine menu](herbal-medicine-menu.md) still applies.
 - If you share this practice with others, the intention line is the one thing to pass on first. Everything else can be learned; that sentence is the seed.
